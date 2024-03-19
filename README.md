@@ -1,0 +1,58 @@
+Motor Vehicle Inspection services
+Real estate activities on a fee or contract basis n.e.c.
+Residential Property Developer
+Diamond, Jewellery, and Gold Trading
+Export cassava products and Import fertilizer
+Sales and Rental of Condominium
+Wholesale of glassware, chinaware, kitchenware
+Hotel and property rental
+Travel agency and Rental
+Property rental
+Wholesale/retail of Construction materials and transportation business 
+Retail Selling of Jewelry
+Plastic bottle Reprocessing
+Shopping mall complex operator
+Petroluem Trading (Gas station)
+Wholesale/Retail of Office Furniture
+Wholesales & Retail Selling of Jewelry
+Commercial office rental
+Inbound Tour
+Rental Income
+Wholesale/Retail of Petroleum; Jewelry trading, rental income
+Manufacture of uPVC/HDPE pipe and Electrical Conduit
+Wholesale and Retail all kind of car tire
+Import Export of Medicine Products and vaccine 
+Wholesale/Retail of Construction Materials
+Wholsale and Retial of Steel 
+Petrol Station 
+Petrol Station 
+Wholesale of Grocery 
+Wholesale of Grocery 
+Distributor of Cambodia beverage company and rental income
+Wholesales and Retail of Power Tools and Agricultural Machinery 
+Wholesale and Retail of plastic household and toy 
+Car Garage, Maintenace Service, wholesale and retail of car sparepart, LPG, Pumling marchine and Car LPG system Installation
+Car Garage, Maintenace Service, wholesale and retail of car sparepart, LPG, Pumling marchine and Car LPG system Installation
+Wholesaler/Retailer of Talkie-walkie and mobile phones (VIVO)
+Wholesale of fertilizer
+Clinic 
+Import of Medicine
+Wholesales of stationaries
+Wholesale of recycle other metal waste and scrap
+Wholesale of Motorcycle
+Wholesale of zinc roof and metal tank
+Wholesale and Retail of Construction Materials
+Properties rental
+Buying and Selling Car
+"Electricity Distribution and
+Ice Handicraft "
+Wholesale and retail of petrol
+Wholesale of plastic products
+Plastic production
+Poultry farming and mini mart
+Wholesale and Retail of Construction Material, Buying and Selling Car
+Sub-distributor of Apple products
+"Selling silk & lady clothes 
+online shop"
+Pharmacy
+Jewelry 
