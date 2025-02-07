@@ -42,3 +42,14 @@ Broader Scope:
 Considers emissions from a variety of sectors and industries within a financial portfolio.
 Challenges:
 May not directly incentivize emissions reductions in production processes.
+
+
+Country
+PHL: 
+large car, 967km per month 
+small car, 980km per month
+
+LAOS:
+car: 42km per day (https://gggi.org/wp-content/uploads/2023/06/EV-Report-Engish-1.pdf)
+trucks: 55000km annually (https://documents1.worldbank.org/curated/en/469191543240299696/pdf/Transport-Costs-and-Prices-in-Lao-PDR-Unlocking-the-Potential-of-an-Idle-Fleet.pdf)
+
